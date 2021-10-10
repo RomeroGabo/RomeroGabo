@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RomeroGabo
+- 👀 I’m interested in languages
+- 🌱 I’m currently studying System Engineering
+- 💞️ I’m looking to learn something
+- 📫 How to reach me by Email
